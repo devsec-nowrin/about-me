@@ -1,6 +1,6 @@
 # 💻 Amena Akter Nowrin
 
-### Aspiring SOC Analyst | Cybersecurity Enthusiast | Blue Team 🛡️ | SIEM (Wazuh) | Cyber Defense 🔐 | BSc in CSE
+### 🛡️ Aspiring SOC Analyst | Cybersecurity Enthusiast | BSc in CSE | Blue Team | SIEM (Wazuh) | Cyber Defense 🛡️
 
 ---
 
