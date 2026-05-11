@@ -74,7 +74,7 @@ Internships, Junior SOC roles, or cybersecurity projects to further develop my p
 
 ## 🚀 Let's Connect
 
-• Email: your-email@example.com  
+• Email: cybersec.n1337@gmail.com  
 • LinkedIn: https://www.linkedin.com/in/yourusername  
 • Facebook: https://www.facebook.com/yourusername  
 • X (Twitter): https://x.com/yourusername
